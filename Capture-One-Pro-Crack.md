@@ -16,6 +16,8 @@ High-resolution previews for 4K and 5K monitors
 
 Resizable Curve and Color Balance tools
 
+🌍😍👉 https://tinyurl.com/3wvzvwh8?ef47
+
 Capture one pro download
 
 Capture One Pro vs Lightroom
